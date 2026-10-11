@@ -49,4 +49,4 @@ learning for children.
 
 ## 📫 Connect With Me
 
-- LinkedIn: Add your LinkedIn URL here
+- LinkedIn: linkedin.com/in/aljawharah-/
